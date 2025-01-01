@@ -13,7 +13,6 @@
 
 - 📄 Know about my experiences [linkedin.com/in/tanmaydangat](linkedin.com/in/tanmaydangat)
 
-<h3 align="left">Connect with me: tanmaydangat01@gmail.com</h3>
 <p align="left">
 </p>
 
